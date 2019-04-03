@@ -2,4 +2,4 @@
 
 Hi Humans!
 
-Lillian here, I like friend things with cheese.
+Lillian here, I like fried things with cheese.

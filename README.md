@@ -1,2 +1,5 @@
 # hello-world
-Just another repository
+
+Hi Humans!
+
+Lillian here, I like friend things with cheese.
